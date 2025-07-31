@@ -1,8 +1,8 @@
- <details> <summary>about me</summary> hi im *francis* or ray,, im a femme boylesbian
+ <details> <summary>about me</summary> hi im francis or ray,, im a femme boylesbian and taken <3
 <br>
-  im usually friendly unless stated otherwise, 
+  im usually friendly unless stated otherwise, i like mcr and other bands, animation, my gorgeoous girl!! and dogs!
 <br>
-  feel free to int if im not offtab! :)
+  feel free to int if im not offtab! :) im a puppy btw
   <br>
     </details>
     
