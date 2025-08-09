@@ -2,7 +2,7 @@
 <br>
   im usually friendly unless stated otherwise, i like mcr and other bands, animation, my gorgeoous girl!! and dogs!
 <br>
-  feel free to int if im not offtab! :) im a puppy btw (i also hide/block)
+  feel free to w2i if im not offtab! :) im a puppy btw (i also hide/block)
   <br>
     </details>
 <details> <summary>dni!!! </summary> basic dni, dni if ur proship n_n, -14, sh/edtwt, tcc, MSI, MELANIE, ZERO DAY FANS!! FUCK YOU X(
